@@ -69,7 +69,7 @@ Experienced Software Engineer with 14+ years of expertise in building scalable, 
 ### 💡 Quick Facts  
 - 🎓 MSc Advanced Computer Science (Distinction)  
 - 🌍 Based in Manchester, UK  
-- 🤝 Community Representative at LeadDev London  
+- 🤝 Community Representative Host at LeadDev London (2024, 2025)
 
 ---
 
